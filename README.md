@@ -10,7 +10,6 @@
 
 ---
 
-## 📌hi  
 
 🎯 **Digital Markete- Yasna FaroYasna Farokhi  
 -
@@ -48,7 +47,7 @@
 
 ---
 
-## 💼hi  
+
 
 🎯 **Digital Ma###asna Farokhi  
 
@@ -93,7 +92,7 @@ erienced digital marketer with over 4 ye  Yasna Farokhi
 
 ---
 
-## 📚hi  
+
 
 🎯 **Digital Marketer | - Yasna Farokhi  
 
@@ -112,7 +111,7 @@ erienced digital marketer with over 4 ye  Yasna Farokhi
 
 ---
 
-## 🛠hi  
+
 
 🎯 **Digital Mar| Tool | Skill Level |
 | --- | --- |
@@ -150,7 +149,7 @@ erienced digital marketer with over 4 ye  Yasna Farokhi
 
 🚀 **Digital Marketer | SEO Specialist | Content Creator**  
 
-👩‍💻 **E 
+
 📩 Feel free to contact me via email or LinkedIn.  
 
 ---
